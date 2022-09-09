@@ -1,1 +1,0 @@
-# wellnesspt.github.io
